@@ -1,1 +1,0 @@
-# poryectcolab_secc6
